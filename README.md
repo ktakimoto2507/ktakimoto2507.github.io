@@ -1,0 +1,1 @@
+# ktakimoto2507.github.io
